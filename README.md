@@ -1,1 +1,1 @@
-# .github
+Download MEXC Exchange to access a fast digital asset platform with deep markets, intuitive charts, flexible order tools, and secure account controls. Explore spot markets, manage portfolios, and use mexc futures features designed for active users who want reliable execution on desktop and mobile.
